@@ -1,1 +1,1 @@
-# profitfairy-privacy-policy
+# ProfitFairy-Privacy-Policy
